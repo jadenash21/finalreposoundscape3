@@ -25,3 +25,5 @@ Home 2, Home2-1.mp3, Jade Nash, my own recording
 
 
 Home 3, Home 2.mp3, Gabrielle Nash, my sister's recording (given permission to use since I asked her to record it)
+
+Zapslat Licensing Agreement https://www.zapsplat.com/license-type/standard-license/
